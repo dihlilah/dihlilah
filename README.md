@@ -1,6 +1,6 @@
 <h6 align="center">
 
-![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=cfd8c0)
+![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=506558)
 
 <h6 align="center">
 
