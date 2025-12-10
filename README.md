@@ -9,5 +9,5 @@
 
 
 manipulators/liars/attention seekers DNI truely
-i do not hesitate to block/hide people who act like this
+i do not hesitate to block/hide people who act like this..
 strong example; sen dni
