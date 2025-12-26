@@ -7,8 +7,4 @@
 
 ![image alt](https://i.postimg.cc/yYfCHXQR/IMG-0538.jpg)
 
-
-
-manipulators/liars/attention seekers DNI truely
-i do not hesitate to block/hide people who act like this..
-strong example; sen dni
+i love my friends
