@@ -1,8 +1,10 @@
 <h6 align="center">
 
+  ![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=848484)
+
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=9D3A3D)
+![image alt](https://i.postimg.cc/dV0SZSCw/2573-chainsaw-man-manga.jpg)
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
@@ -17,6 +19,3 @@
 ⊹ ˖ Ი𐑼 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆ ──────•✦•────── ☆⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂ ⊹ ˖ Ი𐑼
 
 <h6 align="center">
-
-
-![image alt](https://i.postimg.cc/yYfCHXQR/IMG-0538.jpg)
