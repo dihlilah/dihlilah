@@ -4,7 +4,7 @@
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-![image alt](https://i.postimg.cc/dV0SZSCw/2573-chainsaw-man-manga.jpg)
+![image alt](https://i.postimg.cc/G3PxTNQZ/E81C3381-955F-4ABB-80D0-D1B6E4326195.jpg)
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
